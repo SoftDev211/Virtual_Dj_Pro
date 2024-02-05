@@ -1,1 +1,1 @@
-[![*](http://gg.gg/18ufqd)](https://is.gd/u8mCLp)
+[![*](https://is.gd/TP5Kpp)](https://is.gd/u8mCLp)
